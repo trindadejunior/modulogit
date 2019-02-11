@@ -1,0 +1,11 @@
+hjgygjyu
+jkkuk,um
+uuyuful
+u,u,ifukum
+uumuumfmym
+umumumumum
+ujdyhthyjyjy
+dtykkukuku
+yumuum
+uu,i,i,i,i
+hu,uiui.i.o.
